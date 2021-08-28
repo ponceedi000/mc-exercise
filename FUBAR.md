@@ -5,3 +5,4 @@ Where do baby cats learn to swim? The kitty pool.
 
 edits to this doc are so fun.
 
+What do sprinters eat before a race? Nothing, they fast!

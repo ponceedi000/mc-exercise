@@ -9,3 +9,4 @@ Where do baby cats learn to swim? The kitty pool.
 
 edits to this doc are so fun.
 
+A guy goes to his doctor because he can see into the future. The doctor asks him, "How long have you suffered from that condition?" The guy tells him, "Since next Monday."
